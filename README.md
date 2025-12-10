@@ -1,4 +1,4 @@
-## 🐍 Python Course in Chandigarh – Excellence Academy (SEO Section)
+## Python Course in Chandigarh – Excellence Academy (SEO Section)
 
 **Excellence Academy** offers a practical and beginner-friendly **Python Course in Chandigarh**, designed for students, freshers, and job seekers who want to build strong programming and digital skills.
 
